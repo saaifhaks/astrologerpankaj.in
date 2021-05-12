@@ -1,0 +1,2 @@
+# astrologerpankaj.in
+pankaj kashyap is one of the aristocrat astrologer of Jorhat,Assam. He is also well qualified and renowned astrologer. Besides he is well known for his various skill and effective remedies. He has vast knowledge about indian astrology.He firmly believe that our present life is directly influence by our karma or actions. As there is always a hope to impossible can be get possible.If there is negativity
